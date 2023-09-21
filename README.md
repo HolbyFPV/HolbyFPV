@@ -1,1 +1,1 @@
-![image](https://github.com/HolbyFPV/HolbyFPV/assets/61704528/2f58969d-ecdb-4797-8a74-4369647e6411)
+![holby-banner](https://github.com/HolbyFPV/HolbyFPV/assets/61704528/7f2acfbc-9471-47cd-8eff-e70ab39cc093)
